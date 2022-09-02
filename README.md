@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Shubham kashid
-- 👀 I’m interested in internshifs
+- 👀 I’m interested in geting job
 - 🌱 I’m currently learning computer science and engineering  
 - 💞️ I’m looking to collaborate on any python projects
 - 📫 How to reach me Instagram:- @mr_shubham_kashid_9_12, Watsapp:-7249069021 
